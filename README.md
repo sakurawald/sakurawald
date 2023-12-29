@@ -1,7 +1,7 @@
 Introduction: 
 - I am learning English and Mathematics.
 - Prefer coffee to tea.
-- Stay hungry, physically.
+- Love to delicious bread.
 - Asexuality / Vegetarian / FOSS
 
 Interests:
