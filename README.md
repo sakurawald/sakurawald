@@ -6,4 +6,3 @@ Introduction:
 
 Interests:
 - Reading & Writing
-- Music
