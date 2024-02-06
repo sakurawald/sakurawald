@@ -1,8 +1,9 @@
 Introduction: 
 - I am learning English and Mathematics.
 - Prefer coffee to tea.
-- Love to delicious bread.
+- Love cold food.
 - Asexuality / Vegetarian / FOSS
 
 Interests:
 - Reading & Writing
+- Music
