@@ -1,5 +1,5 @@
 Interests:
 - Reading & Writing
-- English & Mathematics 
+- English & Mathematics & Programming
 - Coffee & Bread
 - Bath
